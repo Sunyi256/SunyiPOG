@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning GML Code
 - 💞️ I’m looking to collaborate on any good project by now
 - 📫 How to reach me any of my social media
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact:  I like reading manga
